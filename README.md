@@ -1,2 +1,2 @@
 # bilutomafaleiprimeiro
-sorriso gay
+sorriso nao gay
